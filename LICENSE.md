@@ -1,4 +1,4 @@
-# 
+# Enhance Strong for macOS with premium Strong for macOS Automation | water-intake-tracking + goal-setting, the #1 automation. Includes water-intake-tracking and goal-setting for a
 
 
 
